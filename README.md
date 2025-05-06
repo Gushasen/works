@@ -11,3 +11,6 @@ https://www.pixiv.net/users/115050079
 
 X
 https://x.com/gusen1in1000
+
+Xfolio
+https://xfolio.jp/portfolio/gusen
