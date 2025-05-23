@@ -84,7 +84,9 @@ MyGO第8話長崎そよ「睦ちゃんのせいだよ。あの時も、今も」
 元々はアダムの自責が生んだ想像に過ぎないのだが、MyGOでは本当に他人から言われる。
 睦にとって長崎そよが大事な友人だったことは全ての描写が示している。
 
-#### 第十巻830-834
+#### 第十巻829-834
+all my evasions vain,
+
 And reasonings, though through mazes, lead me still
 
 But to my own conviction: first and last
