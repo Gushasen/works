@@ -221,6 +221,7 @@ Beyond all past example and future;
 
 「お前は、結局、過去にも未来にも比類のない悲惨に陥るのだ」
 
+what thou desirest = what thou fearest = CRYCHIC。
 
 #### 第十巻841
 To Satan only like both crime and doom.
