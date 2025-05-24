@@ -226,3 +226,6 @@ what thou desirest = what thou fearest = CRYCHIC。
 #### 第十巻841
 To Satan only like both crime and doom.
 
+アダムが840行目まで嘆いた罪と罰に比べられるのはサタンだけ。
+
+ここでAve Mujicaはサタンとイーヴを同一人物にする。
