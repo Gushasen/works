@@ -1,5 +1,27 @@
 # 若葉睦（全体）構造の整理
 
+# 序：失楽園第六巻「暗い忘却」
+
+The other sort,
+
+In might though wonderous and in acts of war,
+
+Nor of renown less eager, yet by doom
+
+Cancelled from Heaven and sacred memory,
+
+Nameless in dark oblivion let them dwell.
+
+For strength from truth divided, and from just,
+
+Illaudable, nought merits but dispraise
+
+And ignominy; yet to glory aspires
+
+Vain-glorious, and through infamy seeks fame:
+
+Therefore eternal silence be their doom.
+
 
 ## 睦の夢
 
